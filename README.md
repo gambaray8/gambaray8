@@ -1,1 +1,1 @@
-Hi, I am Abubakar, feel free to ask me for money. I co-own the Dangote refinery with my day one guy, Aliko.
+Hi, I am Abubakar, feel free to ask me for money. I co-own the Dangote refinery with my day one guy, Aliko. Come along if you feel like a room without a roof.
